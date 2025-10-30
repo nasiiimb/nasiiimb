@@ -37,5 +37,5 @@
 
 ## 📫 Contacto
 
-- 📧 nasim-hosam.benyacoub1@estudiant.uib.cat  
-- 💼 [LinkedIn](https://www.linkedin.com/in/nasim-hosam-benyacub-terki-48270527a/)
+- 📧 nasimbenyacoub97@gmail.com  
+- 💼 [LinkedIn](https://www.linkedin.com/in/nasim-hosam-benyacoub-terki-48270527a/)
